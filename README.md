@@ -1,1 +1,2 @@
-# Has-yanov_qa
+﻿https://docs.google.com/spreadsheets/d/1tZs9eWJL86wOxjijoMLQ7M5gD487es3xSMbE3KOH_bE/edit?usp=sharing
+https://docs.google.com/spreadsheets/d/1w8rrIDN9rbl4UP46YshSYojJR_4KBdEfPGlnfoqOxU8/edit?usp=sharing # Has-yanov_qa
